@@ -13,7 +13,7 @@ THINGS TO KNOW ABOUT ME!
 - haha me minor
 - i like playing and making games (on castle)
 - artist
-- > typing quirk 1
+- > typing quirk 1 (>)
 - ♣ typing quirk 2
 
 FANDOMS! (inspo : my pook bagel)
