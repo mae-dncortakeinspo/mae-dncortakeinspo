@@ -15,6 +15,7 @@ THINGS TO KNOW ABOUT ME!
 - artist
 - > typing quirk 1 (>)
 - ♣ typing quirk 2
+- I HATE THAT RED GUY THAT ISNT COOL
 
 FANDOMS! (inspo : my pook bagel)
 - Regretevator
