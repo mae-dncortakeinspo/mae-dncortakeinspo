@@ -31,8 +31,8 @@ FANDOMS! (inspo : my pook bagel)
 - etc. (i dont remember the rest waah)
 
 YOUTUBE! (you can sub idm)
-- mae / nushi
-- @maeslashnushi
+- xtraXP
+- @avavitheutopiacow
 
 ok thats it bye :P
 
