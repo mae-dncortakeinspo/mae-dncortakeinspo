@@ -27,6 +27,7 @@ FANDOMS! (inspo : my pook bagel)
 - NABC (NPC'S are becoming smart)
 - AVAM (Animation vs. Animator/Minecraft)
 - CAL (Cats Are Liquid)
+- Cleaning Simulator
 - etc. (i dont remember the rest waah)
 
 YOUTUBE! (you can sub idm)
