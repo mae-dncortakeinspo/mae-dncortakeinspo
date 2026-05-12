@@ -1,1 +1,2 @@
-riggy murdered the readme. sorry
+not a coder
+(sorry, teto ate the rest of my readme)
